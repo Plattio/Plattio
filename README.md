@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Plattio
+- 💞️ I’m working on minevale.de
+- 📫 Discord: $plattio#8113
